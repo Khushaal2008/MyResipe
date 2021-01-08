@@ -15,7 +15,7 @@ Salt (According to your taste)
 
 1KG Chicken
 
-Vegetable oi (According to the ingredient)
+Vegetable oil (According to the ingredient)
 
 5 Red chilli half-half pieces
 6 Curry leaves
